@@ -1,1 +1,1 @@
-# vs.qld.ee
+# vs.qld.ee subdomain takeover by ibrahimatix0x01
